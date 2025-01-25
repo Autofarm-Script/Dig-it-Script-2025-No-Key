@@ -9,7 +9,8 @@ Roblox Dig it Script Keyless Hack No Key 2025 Pastebin New Exploit Best Auto Far
 
 ![image](https://github.com/user-attachments/assets/1db49c8c-c609-434a-b634-67d2fed4f15f)
 
-![Uploading maxresdefault.jpg…]()
+![maxresdefault](https://github.com/user-attachments/assets/4845ce13-a65e-41d7-be89-9ddb4504976a)
+
 
 
 Roblox Dig it Script Keyless Hack No Key 2025 Pastebin New Exploit Best Auto Farm pc mobile Redz Hub Script Delta Solara Executor Arceus X
